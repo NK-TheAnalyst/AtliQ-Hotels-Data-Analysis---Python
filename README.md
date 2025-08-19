@@ -30,4 +30,5 @@ For any inquiries or collaboration opportunities, feel free to connect with me:
 
 - **LinkedIn:** [Profile](https://www.linkedin.com/in/naveen-kumar-n-095051195/)
 - **Mobile:** +91 9445483415
+- **Email:** naveenkumar2k17@gmail.com
 
